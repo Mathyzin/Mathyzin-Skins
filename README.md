@@ -1,2 +1,2 @@
 # Mathyzin-Skins
-my Skins for Osu!
+All my skins was Mixed with others Skins.
